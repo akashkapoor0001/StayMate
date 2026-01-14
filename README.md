@@ -1,1 +1,1 @@
-# StayMate-
+# StayMate
